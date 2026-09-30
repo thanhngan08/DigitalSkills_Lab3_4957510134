@@ -31,7 +31,7 @@ Nguyên. Tạp chí số 42, tháng 02- 2022, Đại học Tây Nguyên.
         f. Stanley, G. (2013). Language Learning with Technology: Ideas for Integrating Technology in the Classroom. Cambridge University Press.
 
 3. ÁP DỤNG PHƯƠNG PHÁP DẠY HỌC THEO HƯỚNG GIAO TIẾP NHẰM NÂNG CAO CHẤT LƯỢNG DẠY VÀ HỌC TIẾNG ANH TẠI HỌC VIỆN QUÂN Y
-       Tác giả: NGUYỄN THỊ HỒNG THÚy (*) - NGUYỄN THỊ TUYẾT MAI (**) - NGUYỄN THỊ KIM LUYẾN (***)
+       Tác giả: NGUYỄN THỊ HỒNG THÚY (*) - NGUYỄN THỊ TUYẾT MAI (**) - NGUYỄN THỊ KIM LUYẾN (***)
        Năm xuất bản: tháng 09/2025
        Nguồn trích dẫn:
          a. Crookes, G. & C. Chaudron,. Guidelines for Classroom Language Teaching, In Teaching English as a Second or Foreign Language (2nd ed.). M. Celce - Murcia (ed.), Boston, MA. Heinle and Heinle, 1991.
