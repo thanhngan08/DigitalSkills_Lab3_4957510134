@@ -2,6 +2,7 @@
 Họ và tên: Nguyễn Thanh Ngân
 MSSV: 4957510134
 Lớp: NNA-K49B
+Chuyên ngành: Ngôn ngữ Anh
 
 
 PHƯƠNG PHÁP GIẢNG DẠY TIẾNG ANH
